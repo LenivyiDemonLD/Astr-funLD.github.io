@@ -1,2 +1,2 @@
-# AstrоfunLD
+# AstrоfunLD.github.io
  
